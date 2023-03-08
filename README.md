@@ -1,2 +1,26 @@
-# GoF-web
-God of War website thing
+# GoF website
+## Lusta God of War bemutató weblap
+Semmi különös nem tudom miért vagy még itt.
+
+*Dőlt* szó xddd ez is -> _xdd_
+
+**Dagadt** szó lol amugy félkövér na mindegy
+
+Itt egy durva combo -> **_lolxd_**
+
+![képxd](https://upload.wikimedia.org/wikipedia/commons/a/af/Tux.png)
+
+[hehe katt ide](https://youareanidiot.cc)
+
+> Idézet loool
+
+* lista elem 1
+* lista elem 2
+  * ez allista  lol
+  * na meg ez is
+* ez már nem
+
+sorszám hehe:
+1. elem
+2. elem
+3. duracel
