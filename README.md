@@ -8,7 +8,7 @@ Semmi különös nem tudom miért vagy még itt.
 
 Itt egy durva combo -> **_lolxd_**
 
-![képxd](https://upload.wikimedia.org/wikipedia/commons/a/af/Tux.png)
+![képxd](http://media.steampowered.com/apps/440/icons/all_penguin_large.9204f2bb369075d2fcf03954d756d42a247959e5.png)
 
 [hehe katt ide](https://youareanidiot.cc)
 
