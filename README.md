@@ -20,7 +20,7 @@ Itt egy durva combo -> **_lolxd_**
   * na meg ez is
 * ez már nem
 
-sorszám hehe:
+sorszám:
 1. elem
 2. elem
 3. duracel
